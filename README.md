@@ -1,1 +1,1 @@
-infografia_digital_clase-6
+https://danuwu.github.io/infografia_digital_clase-6/
